@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @WD66134
+- 👀 I’m interested in Windows/Microsoft
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me WitheredDock661@outlook.com
+- ⚡ Fun fact: Since Windows 10 RTM Windows Got Worse And Worse
